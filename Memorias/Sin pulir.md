@@ -1,0 +1,1 @@
+Cumpleaños de Jorge Rey Gallegos (@jorgereygallego?), tirando bolas de plastilina desde su casa. Serafín y yo le compramos una maquinita que al final era una mierda. En cualquier caso, el tío fue muy gilipollas, y no quiso venir nadie al cumpleaños.
